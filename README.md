@@ -1,2 +1,5 @@
 # Shenoy-Hospitals-
 We are your FAMILY HOSPITAL. Founded in 1963 as Shenoy Nursing Home by Dr. B. L. Shenoy and his wife Dr. Vidya Devi Shenoy, this unique medical institution still preserves its Value System. We believe in treating our patients like family, giving them the best possible medical care at an affordable cost. Moreover, we have a dedicated team of doctors (some having been there with us for more than 20 years!) to whom your health and well-being comes before everything else.
+With a golden reputation of more than 50 years, Shenoy Hospitals is the COMPLETE FAMILY HOSPITAL of first recall. Ushering in an era of new advancements and new hope, Shenoy Hospitals has highly experienced and dedicated Specialists, the latest facilities, and a genuine caring approach. A state-of-the-art Multispecialty Hospital located in the heart of Secunderabad, it has 40 well-equipped patient beds, 2 highly advanced birthing suites, and a separate building for Outpatient Care. It also has a 24-hour Emergency Unit along with ambulance service. All, dedicated to your good health!
+
+WEBSITE:https://www.shenoyhospitals.com/
