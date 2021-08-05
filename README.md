@@ -1,0 +1,2 @@
+# Shenoy-Hospitals-
+We are your FAMILY HOSPITAL. Founded in 1963 as Shenoy Nursing Home by Dr. B. L. Shenoy and his wife Dr. Vidya Devi Shenoy, this unique medical institution still preserves its Value System. We believe in treating our patients like family, giving them the best possible medical care at an affordable cost. Moreover, we have a dedicated team of doctors (some having been there with us for more than 20 years!) to whom your health and well-being comes before everything else.
